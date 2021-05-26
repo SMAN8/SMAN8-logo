@@ -1,3 +1,3 @@
 # SMAN8-logo
 LogoMark_SMAN8
-![SMAN8Logo](https://user-images.githubusercontent.com/80440848/119602289-cbf79580-be25-11eb-88be-5a234ef45be4.png)
+![Twitter用マルサイズ(BP_Seoul) (1)](https://user-images.githubusercontent.com/80440848/119602728-c2226200-be26-11eb-844a-4a34336ded66.png)
